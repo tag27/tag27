@@ -1,6 +1,6 @@
 # About Me
 
-I just live on the internet.
+I just live on the internet, a normal user who likes personalization.
  
 Accounts
 --------------

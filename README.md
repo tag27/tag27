@@ -1,4 +1,4 @@
-![logo2alt3](https://github.com/user-attachments/assets/771fd0ba-4d27-40e8-b402-5c5f342abad1)
+![logo2alt3 (3)](https://github.com/user-attachments/assets/fdd0bf39-10d7-4c3c-8853-420bee7d7268)
 
 # About Me
 
